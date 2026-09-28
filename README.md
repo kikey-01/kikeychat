@@ -1,2 +1,2 @@
 # kikeychat
-forqq
+ai
